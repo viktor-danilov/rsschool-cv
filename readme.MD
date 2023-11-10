@@ -1,1 +1,0 @@
-https://viktor-danilov.github.io/rsschool-cv/cv
